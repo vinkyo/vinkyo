@@ -17,3 +17,4 @@ my carrd has more info, so feel free to look at it!! my irls are listed below! :
 - Marcy Wu (Amphibia)
 
 thank you for reading!! <3 
+▀▄▀▄▀▄▀▄ 
