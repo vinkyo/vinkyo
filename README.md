@@ -16,5 +16,9 @@ my carrd has more info, so feel free to look at it!! my irls are listed below! :
 - Joe Tazuna (YTTD)
 - Marcy Wu (Amphibia)
 
+(( I don't mind any nicknames, please do not bring up my sourcetrauma 
+right in front of me either, it makes me lightheaded or makes me feel
+sick. ))
+
 thank you for reading!! <3 
 ▀▄▀▄▀▄▀▄ 
